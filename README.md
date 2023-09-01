@@ -1,1 +1,1 @@
-# 7th_SEM_LAB_AND_ASSIGNMENT
+# 7th_SEM
